@@ -1,6 +1,6 @@
 ## Seja bem-vindo! 🧑‍💻
 ✩ ♬ ₊.🎧⋆☾⋆⁺₊✧
-![]([https://pin.it/2FSjBbDlZ)
+![Omori Basil Omori GIF - Omori Basil Omori Spin - Discover   Share GIFs](https://github.com/user-attachments/assets/221fa163-22ca-477b-a6f9-37df7eb3dac9)
 
 Eu sou a Loara, sou uma estudante do 1º ano do Ensino Médio no Alura, no momento estudando a linguagem JavaScript. Aqui é onde organizo e compartilho meus projetos desenvolvidos!
 
